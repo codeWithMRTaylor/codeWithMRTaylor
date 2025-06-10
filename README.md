@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Michael @codeWithMRTaylor
 - 👀 I’m interested in learning everything I can
 - 🌱 I’m currently studying at the University of Regina
-- 💞️ I’m looking to collaborate on any projects needed
+- 💞️ I’m looking to collaborate on any projects, big or small
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm constantly looking for new things to learn. From coding to textiles, it all catches my attention.
 
